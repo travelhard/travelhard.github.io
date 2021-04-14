@@ -1,0 +1,30 @@
+---
+layout: post
+title: 1.6 milliards de chinois, et moi et moi et moi
+date: 2006-09-17 21:18:37.000000000 -04:00
+type: post
+parent_id: '0'
+published: true
+password: ''
+status: publish
+categories:
+- Travel
+tags: []
+meta:
+  _edit_last: '1'
+---
+<p>Bonjour a tous,</p>
+<p>Deux semaines deja que j'ai quitte Montreal et j'ai l'impression que ca fait des mois. La Chine c'est vraiment different de tous ce que j'ai vu avant, mais pour le moment j'ai de la difficulte a cerner ce qui est si different. Different du Canada evidement, mais aussi different de l'Afrique et meme de l'Asie du Sud est. Faut dire qu'ici tout est gros et y'a du monde en tarbouche!</p>
+<p><!--more--></p>
+<p>En ce moment je suis a Shanghai chez mon ami JF qui vit une vie typiquement expat: travail trop, mange bien et sort dans des clubs brancher ou y'a autant sinon plus de blanc que de Chinois. Y'a des endroits ou on est aller ou je ne me sentais serieusement pas en Chine telment y'avait d'occidentaux. On s'est aussi promener dans des Hutons, des micro-ville dans la ville ou les gens vivent dans des appartement a 1 ou 2 pieces. Ca fait un contraste vraiment fort avec le centre-ville et les milliers de gratte-ciels. On a deja passes des soirees memorables ou est entre a 5am.</p>
+<p>Quand je suis d'afrique plusieurs personnes m'ont demande : Qu'est-ce que tu as mange de plus bizzard et en 1 an et demi l'affaire la plus bizzard (que je sais) c'est probablement du crocodille et probablement de la souris hachee (mais ca c'est de la speculation). Ici depuis 2 semaines j'ai but de l'alchool qui contient du penis phoque, manger du chien et un oursin. J'ai aussi vu Nicolas manger un "swim bladder" l'organne qui permet au poisson de decider a quelle profondeure ils flottent (plus sur cette episode dans la section Hong Kong). Je dois avouer que j'ai pas oser en manger. Il y a aussi les face de cochon qui sont un delice ici... C'est juste trop degeulasse, la peau de la tete du cochon pend a un crochet et tu peux acheter ca!? Voir photo sur mon site ( www.travelhard.com)...</p>
+<p>Pour revenir un peu en arriere, mon vol entre Montreal et Hong Kong a durer a peine 30 heures avec les escales, je n'etais vraiment pas fatigue apres. Avec le 12 heures de decallage j'ai ete dephase pendant presqu'une semaine. Je me reveillais en plein millieu de la nuit et je ne pouvais plus dormir, vraiment tres agreable. Sur le vol entre Mtl et Chicago j'ai jaser avec un gars pas mal cool de Montreal qui s'en allait en Australie et on a passer le vol a jaser, on etait aussi sur le meme vol vers Tokyo donc l'escale a Chicago a ete moins penible. Pour ce qui est de celle a Tokyo, je suis aller dans le salon d'embarquement et je me suis endormis, quand je me suis reveiller 2 heures apres la salle etait pleine de monde. En arrivant a Hong Kong j'avais un email d'une amie (Vanessa) que j'ai rencontre au Mozambique, elle vit maintenant a Hong Kong avec un coloc Espagnol (Nicolas) et ils m'ont invite a rester chez eux quelques jours. C'etait vraiment bien d'avoir des "guides", j'ai fais des marches avec eux et j'ai aussi visite la ville par moi meme. Je suis aller dans un Hot Pot avec Nicolas, le hot pot c'est un soupe sur une plaque chauffante et tu demandes ce que tu veux et ils te l'ammenent. Le bon coter c'est que la boisson est aussi a volonte. Donc on a commande pas mal de truc que l'on fesait bouillir, des crevettes, des petoncles, du porc, du poulet, du boeuf et a un moment, on a arrete de choisir et on a laisse le serveur nous ammener des trucs, c'est la que les "swim bladder" sont arrives. En voyant ca je savais que je n'en mangerais pas.. c'etait degeulasse. Nicolas en a fait bouillir une et m'a dit que ca goutait comme une "bouchee de mer". Comme on avait aucun idee de ce que c'etait je suis aller voir des chinois a la table d'a cote et je leur ai demande ce que c'etait. Quand ils ont finalement arrete de rire la premiere chose qu'ils ont dit : "You don't want to eat this!" encourrageant... Ils nous ont finalment dit que c'etait des swim bladders. J'ai eu vraiment du fun cette soiree la, on a aussi ramasser des ballons gonfle a l'helium et on a appeler Vanessa avec notre voix de chimpmunks. Tres tres drole quand on a un petit verre dans le nez.</p>
+<p>Je suis ensuite saute dans un train pour une ride de 24 heures pour me rendre de Hong Kong a Shanghai et quand je suis arrive on a fait le party avec JF et 2 de ses collegues, vraiment cool. Ils m'ont ammene dans le seul bar de Shanghai qui joue du rock, quand on est arrive c'est Hole qui jouait. Apres ca on a fait du bar hopping question que je vois un peu plus de d'endroit. Depuis que je suis ici (mercredi) j'ai marche pas mal dans ville, c'est fou comme c'est gros! Y'a du monde partout et etrangement a peu pres pas d'endroit pour s'assoire, pas super cool quand ca fait 4h que tu marches. Traverser les rues, c'est aussi une experience assez troublantes. Premierement la courtoisie ca n'existe pas, plus t'es gros plus t'as des droits et a pied, on est pas ben ben gros. Je me suis rendu compte que c'est souvent plus securitaire de traverser quand la lumiere est rouge! J'avoue que ca sonne etrange mais c'est vrai. Pcq au moins quand c'est rouge tu es sur tes gardes. Y'a les scooters, les velo les auto et les autres pietons a prendre en consideration avant de traverser une rue. Hier on a vu un petit cul se faire frapper par un gars a velo. Le kid a revolle dans les air et s'est ecrase sur le sol, il est reste sans bouger quelques secondes avant de se mettre a pleurrer.</p>
+<p>Prochaine etape Beijing (Pekin) dans quelques jours ou je vais essaye d'obtenir un visa pour la Mongolie, je veux me depecher avant qu'il fasse trop froid.</p>
+<p>C'est tout pour cette fois, tenez moi au courrant de ce qui se passe a Montreal,<br />
+Mat.</p>
+<p>P.S. J'ai deja mis plusieurs photos en ligne pour votre plus grand plaisir :)</p>
+<p>--<br />
+---
+  
+Pense du mois : It's that time of the year again...
